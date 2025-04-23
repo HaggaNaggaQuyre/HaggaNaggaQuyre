@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HaggaNaggaQuyre
 - 👀 I’m interested in cool Stuff
-- 🌱 I’m currently learning to fly with flutter
+- 🌱 I’m currently learning to fly with Lovable
 - 💞️ I’m looking to collaborate on come to my companie we pay well 
 - 📫 How to reach me slide in my twitter DMs @HaggaNagga 
 
